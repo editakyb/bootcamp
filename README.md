@@ -1,0 +1,1 @@
+Laba diena, tai yra mano pirmasis projektas, kuris man yra labai svarbus, nes įdėjau daug jėgų ir laiko!
